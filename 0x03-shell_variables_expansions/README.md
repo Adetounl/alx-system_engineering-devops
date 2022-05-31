@@ -1,1 +1,1 @@
-17. I'm an instant star. Just add water and stir.
+2. The path to success is to take massive, determined action
